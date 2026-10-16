@@ -1,4 +1,4 @@
-![Descripción de la imagen](https://media.discordapp.net/attachments/1478874375686983875/1495526663100825710/Captura_de_pantalla_2026-04-19_174848.png?ex=6a35ab3e&is=6a3459be&hm=e12b24d392d2ea1a62a54b9e52e3a01532c92e7ffa94ed275532e39918778b99&=&format=webp&quality=lossless)
+![Descripción de la imagen](https://cdn.discordapp.com/attachments/1291441084106543196/1560513990742769815/image.png?ex=6ad2fd68&is=6ad1abe8&hm=360d1bfd6b734b809755e970b7c419f5bab71fd782a181d4a2989db551a37fa9&)
 
 🌟 STEAM-IDLE 🌟
 
